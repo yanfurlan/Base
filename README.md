@@ -101,7 +101,7 @@ Programador especializado em bancos de dados (Oracle, SQL Server, MySQL, Neo4j)
 📍 São Paulo, Brasil  
 📧 yangabrielfurlan@gmail.com  
 📞 +55 12 99600-9247  
-🔗 [LinkedIn](https://www.linkedin.com/in/yanfurlan)
+🔗 [LinkedIn](https://www.linkedin.com/in/yan-furlan-455ab820b/)
 
 ---
 
